@@ -1,4 +1,4 @@
-
+Experience one tap like never before with one tap secure Scripts, the #1 Script. Includes no clip and teleport for unbeatable performance.
 
 
 
